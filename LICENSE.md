@@ -1,4 +1,4 @@
-# 
+# Enhance MacKeeper for macOS with exclusive MacKeeper for macOS Helper | malware-scanning + system-optimization, the #1 helper. Includes malware-scanning and system-optimization
 
 
 
